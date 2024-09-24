@@ -1,0 +1,1 @@
+# struktur-bumi-yendri
